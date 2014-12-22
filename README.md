@@ -36,7 +36,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-TEN BOOKS of Homers Iliades, translated out of French, By Arthur Hall Esquire.AT LONDON Imprinted by
+
 1. To the right VVorshipfull his very good friend Sir Thomas Cicill Knight A. H. wisheth all prosperitie.
 
 #####Body#####
